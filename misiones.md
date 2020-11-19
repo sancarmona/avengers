@@ -1,5 +1,5 @@
 # Misiones
 
 *Investigar al Dr. Doom
-*Capturar a Red Skull gfrt dubay
+*Capturar a Red Skull ert
 *Capturar al raton vaquero
